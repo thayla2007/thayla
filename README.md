@@ -1,1 +1,2 @@
-# thayla
+Bullying é uma prática sistemática e repetitiva de atos de violência física e psicológica, tais como intimidação, humilhação, xingamentos e agressão física, de uma pessoa ou um grupo contra um indivíduo. A prática do bullying geralmente acontece no ambiente escolar e pode provocar danos psicológicos sérios em suas vítimas.
+O bullying pode acontecer no condomínio, na vizinhança, em grupos ou agremiações esportivas etc.., mas o local onde mais acontece esse tipo de crime é na escola. Fatores sociológicoes e psicológicos explicam essse fenômeno: é na escola onde os jovens passam grande parte de seu tempo e interagem com um número maior de pessoas
